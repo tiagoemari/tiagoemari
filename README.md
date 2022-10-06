@@ -1,0 +1,4 @@
+- 👋 ola,meu nomne e tiagoemari
+- 👀 meu gmail de contato e @TIAGO.MARTINSKI@escola.pr.gov.br
+- 🌱 eu estou interresado em aprender e programar novas linguagens
+- 
